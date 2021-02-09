@@ -1,4 +1,4 @@
-My name is Aidyn.
+My name is Aidyn, surname is Kuzembay.
 I am 18 years old.
 My hobby is Football and Tennis.
 I live in Aktobe.
